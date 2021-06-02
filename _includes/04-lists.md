@@ -1,1 +1,2 @@
-Replace this with a list of your favorite things.
+1. Visita mi sitio web www.340.com.co
+2. Visita mi sitio en linkIn www.linkedin.com/in/jorgeabadnietolopez
