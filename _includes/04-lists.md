@@ -1,2 +1,2 @@
-1. [Visita mi sitio web](www.340.com.co)
-2. [Visita mi sitio en linkedIn](www.linkedin.com/in/jorgeabadnietolopez)
+1. Gestionamos tus proyectos a otro nivel
+2. Capacitamos en gerencia de proyectos
