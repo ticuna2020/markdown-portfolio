@@ -1,1 +1,3 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+** Experiencia en GERENCIA DE PROYECTOS **
+_GESTIÓN DE TECNOLOGÍAS DE LA INFORMACIÓN_
+👌
