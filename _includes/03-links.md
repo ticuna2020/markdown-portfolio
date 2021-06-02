@@ -1,1 +1,1 @@
-[GitHubticuna2020]https://github.com/ticuna2020
+[GitHubticuna2020](https://github.com/ticuna2020)
